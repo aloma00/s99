@@ -1,1 +1,21 @@
 # s99
+http://www.28321h.com
+http://www.28321j.com
+http://www.28321l.com
+http://www.28321p.com
+http://www.28321q.com
+http://www.2b0000.com
+http://www.2h3kkk.com
+http://www.311300.net
+http://www.3kmoon.com
+http://www.411141.net
+http://www.437520.com
+http://www.51wxxs.com
+http://www.520wkl.com
+http://www.54wudi.com
+http://www.556xin.com
+http://www.582gou.com
+http://www.66366g.com
+http://www.66mmyy.com
+http://www.678vvy.com
+http://www.789vvy.com
